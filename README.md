@@ -1,5 +1,5 @@
-# 💫 About Me:
-🔭 Computer science student at Université de Bourgogne
+# 💫 Hi There:
+🧠 Computer science student at Université de Bourgogne
 
 
 ## 🌐 Socials:
